@@ -1,4 +1,4 @@
-
+instant Script anime card collection auto-collect and one-hit kill is the best anime card collection Script, featuring auto-collect and one-hit kill.
 
 
 ---
